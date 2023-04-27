@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at : [https://github.com/omkarcdac01](https://github.com/omkarcdac01)
 
-- 💪 My Strenghts : [Quick lerner, Confidant, Communication Skills, Optimistic, Leadership Skills, Team Player, Good at Decision making.](Quick lerner, Confidant, Communication Skills, Optimistic, Leadership Skills, Team Player, Good at Decision making.)
+- 💪 My Strenghts : Quick lerner, Confidant, Communication Skills, Optimistic, Leadership Skills, Team Player, Good at Decision making.
 
 - 📫 How to reach me : **omkarsadhav10@gmail.com**
 
